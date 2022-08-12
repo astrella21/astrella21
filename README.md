@@ -1,6 +1,6 @@
 ### Hi gaiss
 
-![Tux, the Linux mascot](/assets/images/tux.png)
+![zayn malik](/fto.jpg)
 <!--
 **astrella21/astrella21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub Profile.
 
